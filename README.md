@@ -1,1 +1,1 @@
-# redpillbook
+# common-sense-book
