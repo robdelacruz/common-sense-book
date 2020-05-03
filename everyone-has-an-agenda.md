@@ -14,11 +14,11 @@ In order to get you to comply with their agendas, powerful people and organizati
 
 Almost everything broadcast in this world for mass consumption has an agenda. You can choose to limit your exposure to it. Or continue consuming it, while being aware that what you're feeding your mind has an agenda. As long as you're aware that there's an agenda, you can guard against it.
 
-What are examples of things that have little or no agenda? I've thought about this question. I think competitive sports is one. It's just two teams or two competitors slugging it out in a test of skill and will, no agenda there. I think broadcasts of competitive sports have little or no agenda. The pre and post-game, and interviews may have an agenda though.
+On TV, the most agenda-less thing to watch has to be professional sports. It's hard for a basketball game or tennis match to have an agenda.
 
 What else has minimal agenda? Old public domain books in which the intellectual property rights have expired are good. They may have had an agenda at the time it was written, but at least it no longer has a current agenda. And the message of these books usually contains useful and robust information owing to the fact that it has survived this long.
 
 Other things that have no agenda: Mathematics and natural science, physical training, building and fixing things, observing things in the real world. These all keep the mind and body sharp. And they don't come with the baggage of an agenda. These are beneficial things than can replace much of what you're currently consuming.
 
-In short, guard your mind against agendas. And try to focus more on the things that have little or no agenda.
+Being aware of agendas in the things we consume is the first step to safeguarding against them.
 
